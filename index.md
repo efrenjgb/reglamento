@@ -3,7 +3,7 @@
 Del Régimen de Propiedad Horizontal del Condominio Boulevard del Río I,
 situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
----
+
 
 ## Índice
 
