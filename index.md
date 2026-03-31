@@ -37,17 +37,13 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo II
-
-### Aplicabilidad
+### Capítulo II: Aplicabilidad
 
 - **Artículo 3**: Las disposiciones de este reglamento son aplicables a todo terreno, edificaciones y dependencias del Condominio y a todos los titulares de los apartamentos y espacios de estacionamiento, presentes y futuros, así como a los arrendatarios, huéspedes, visitantes, invitados, empleados y a cualquier persona que esté presente o use las facilidades del Condominio por cualquier motivo o título, y la presencia en el Condominio de cualquier persona lleva implícito la aceptación y obligación de cumplir el presente Reglamento.
 
 ---
 
-### Capítulo III
-
-### Consejo de Titulares
+### Capítulo III: Consejo de Titulares
 
 - **Artículo 4:** El Consejo de Titulares es el órgano supremo del Condominio en el cual reside al plena y omnímoda soberanía del mismo. Sus resoluciones y acuerdos, tomados con el quórum y demás formalidades legales, son de ineludible e inexcusable cumplimiento por todos y cada uno de los titulares y demás personas que estén presentes en el Condominio o es relacionen con el mismo.
 
@@ -78,9 +74,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo IV
-
-### Junta de Directores
+### Capítulo IV: Junta de Directores
 
 - **Artículo 14:**
   - (a) La Junta de Directores consistirá de un Presidente, vice-presidente, secretario, tesorero y tres (3) vocales. Tanto el Presidente, secretario y tesorero deberán ser electos por el Consejo de Titulares para cada puesto por separado.
@@ -117,9 +111,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo V
-
-### Cargos Ejecutivos
+### Capítulo V: Cargos Ejecutivos
 
 - **Artículo 21:** DEL PRESIDENTE. Será el principal funcionario ejecutivo del Condominio y tendrá los deberes y facultades siguientes:
   - a) Presidir las reuniones del Consejo de Titulares y de al Junta de Directores.
@@ -161,9 +153,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo VI
-
-### Del Administrador
+### Capítulo VI: Del Administrador
 
 - **Artículo 26:** El Administrador será nombrado y removido por al Junta de Directores debiendo ser ratificado por el Consejo de Titulares, pudiendo recaer el nombramiento en un individuo o en una corporación, sea o no titular, y que reúna las condiciones determinadas por al Junta de Directores, el Consejo de Titulares y la Ley de Condominios. La Junta fijará su remuneración.
 
@@ -181,9 +171,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo VII
-
-### De los Titulares
+### Capítulo VII: De los Titulares
 
 - **Artículo 28:** Será considerado Titular el propietario de un apartamento que acredite fehacientemente tener su propiedad, con todos los derechos y obligaciones inherentes al mencionado dominio. A ese efecto, todo propietario tiene la obligación de comunicar al Administrador, con expresión de su nombre, apellido, generales y dirección. La fecha y demás particulares de al adquisición, los documentos fehacientes que acrediten dicho extremo, del cual se tomará razón en el Registro de Titulares, dejando constancia en el titulo respectivo. Mientras no se cumplan las anteriores formalidades será tenido por titulares a los efectos de citaciones y votación en las sesiones del Consejo de Titulares, quien figure en el Registro de Titulares, y por dirección al que aparezca registrada en al Administración.
 
@@ -212,9 +200,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo VIII
-
-### Del uso de los apartamentos
+### Capítulo VIII: Del uso de los apartamentos
 
 - **Artículo 39:** La falta de cumplimiento de un titular de un apartamento con los términos de esta escritura matriz, del reglamento o al ley, dará derecho a los demás titulares y/o al Consejo de Titulares a solicitar cualquier compensación en ley, y si el Consejo se viera obligado a demandar un titular por dicho incumplimiento tendrá derecho al reembolso de gastos de abogados razonables y costas, el que el titular se compromete a pagar.
 
@@ -232,9 +218,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo IX
-
-### De los elementos comunes
+### Capítulo IX: De los elementos comunes
 
 - **Artículo 41:** Tendrán al condición de bienes o elementos comunes, generales y limitados, a todos los efectos legales, los establecidos en la Ley 104 del 52 de junio de 1958, según enmendada conocida como Ley de Condominios y en la escritura matriz del Condominio.
 
@@ -260,9 +244,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo X
-
-### De las aportaciones a los gastos comunes de administración y mantenimiento
+### Capítulo X: De las aportaciones a los gastos comunes de administración y mantenimiento
 
 - **Artículo 45:** Los Titulares están obligados a contribuir a los gastos para la administración, conservación, reparación y uso de los elementos comunes limitados, los gastos de similar naturaleza impuestos por el Consejo, así como a cuantos más fuesen legítimamente acordados.
 
@@ -278,9 +260,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo XI
-
-### Modificaciones al Reglamento
+### Capítulo XI: Modificaciones al Reglamento
 
 - **Artículo 51:** Cuando en una reunión convocada para enmendar el Reglamento, no pueda obtenerse al aprobación de las dos terceras (2/3) partes de todos los Titulares, aquellos que, debidamente citados, no hubieran asistido, serán notificados de modo fehaciente y detallado del acuerdo adoptado por mayoría de los presentes, concediéndoles un plazo de treinta (30) días a contar desde dicha notificación para manifestar en al misma forma su conformidad o discrepancia debidamente fundamentada por escrito con el acuerdo tomado. Disponiéndose que, el voto de aquello titulares que no manifestaren su discrepancia dentro del plazo concedido, es contará a favor de al enmienda propuesta y aprobada por los demás titulares. Dicha enmienda será válida y ejecutable tan pronto se obtenga al aprobación de las dos terceras (2/3) partes de los Titulares.
 
@@ -292,9 +272,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo XII
-
-### De los seguros
+### Capítulo XII: De los seguros
 
 - **Artículo 55:** Los edificios, en su conjunto deberán estar asegurados contra riesgos de pérdida, entre éstos será obligatorio incluir el incendio y terremoto por el valor total del edificio. La póliza de seguro deberá contener una cubierta a favor o en protección de los miembros de la Junta de Directores por su desempeño mientras ocupen su cargo.
   - a) El seguro comunal será seleccionado por el Consejo de Titulares mediante acuerdo de los que representen mayoría, sin perjuicio del derecho que el asiste a cada titular de asegurar por su cuenta y beneficio propio su apartamento. El titular que tenga seguro particular o que haya saldado su hipoteca no queda exonerado de contribuir proporcionalmente al seguro comunal adoptado por el Consejo.
@@ -302,9 +280,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo XIII
-
-### Del Fondo de Reserva
+### Capítulo XIII: Del Fondo de Reserva
 
 - **Artículo 56:** Se constituirá un Fondo de Reserva para al atención de gastos extraordinarios, obras urgentes y para obras de mejora.
   - a) El presupuesto anual incluirá una partida de Fondo de Reserva que no será menor del cinco por ciento (5%) del presupuesto operacional de Condominio para ese año.
@@ -316,17 +292,13 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo XV
-
-### De las impugnaciones
+### Capítulo XV: De las impugnaciones
 
 - **Artículo 59:** Cualquier titular podrá impugnar en el Departamento de Asuntos del Consumidor (DACO) los acuerdos del Consejo de Titulares y las determinaciones, omisiones o actuaciones de al Junta de Directores. En la asamblea anual el Consejo de Titulares es elegirá un Comité de Conciliación compuesto por tres (3) titulares, uno de los cuales se escogerá de entre al Junta de Directores, excluido el Presidente. Todo titular que presente una querella ante el foro pertinente impugnando actuaciones u omisiones de al Junta de Directores o del Agente Administrador deberá demostrar que agotó el procedimiento estatuido en la Ley de Condominios para ventilar querellas ante al Junta de Directores y/o el Comité de Conciliación.
 
 ---
 
-### Capítulo XVI
-
-### Anejos
+### Capítulo XVI: Anejos
 
 - **Artículo 60:** Se hacen formar parte integral de este Reglamento los siguientes anejos:
   - A) Anejo A: Listado de multas impuestas por violaciones al Reglamento.
@@ -335,9 +307,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 ---
 
-### Capítulo XVIII
-
-### Cláusula Derogatoria
+### Capítulo XVIII: Cláusula Derogatoria
 
 - **Artículo 61:** El presente Reglamento, habiéndose aprobado conforme a las disposiciones de la Ley de Condominios, tiene el efecto de derogar cualquier otro Reglamento previamente adoptado por el Consejo de Titulares del Condominio Boulevard del Río I.
 
