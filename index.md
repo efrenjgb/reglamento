@@ -1,0 +1,431 @@
+# Reglamento del Condominio Boulevard del Río I
+
+Del Régimen de Propiedad Horizontal del Condominio Boulevard del Río I,
+situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
+
+---
+
+## Índice
+
+- [Capítulo I](#capítulo-i)
+- [Capítulo II: Aplicabilidad](#capítulo-ii-aplicabilidad)
+- [Capítulo III: Consejo de Titulares](#capítulo-iii-consejo-de-titulares)
+- [Capítulo IV: Junta de Directores](#capítulo-iv-junta-de-directores)
+- [Capítulo V: Cargos Ejecutivos](#capítulo-v-cargos-ejecutivos)
+- [Capítulo VI: Del Administrador](#capítulo-vi-del-administrador)
+- [Capítulo VII: De los Titulares](#capítulo-vii-de-los-titulares)
+- [Capítulo VIII: Del uso de los apartamentos](#capítulo-viii-del-uso-de-los-apartamentos)
+- [Capítulo IX: De los elementos comunes](#capítulo-ix-de-los-elementos-comunes)
+- [Capítulo X: De las aportaciones a los gastos comunes de administración y mantenimiento](#capítulo-x-de-las-aportaciones-a-los-gastos-comunes-de-administración-y-mantenimiento)
+- [Capítulo XI: Modificaciones al Reglamento](#capítulo-xi-modificaciones-al-reglamento)
+- [Capítulo XII: De los seguros](#capítulo-xii-de-los-seguros)
+- [Capítulo XIII: Del Fondo de Reserva](#capítulo-xiii-del-fondo-de-reserva)
+- [Capítulo XV: De las impugnaciones](#capítulo-xv-de-las-impugnaciones)
+- [Capítulo XVI: Anejos](#capítulo-xvi-anejos)
+- [Capítulo XVIII: Cláusula Derogatoria](#capítulo-xviii-cláusula-derogatoria)
+- [Anejo A](#anejo-a)
+- [Anejo B](#anejo-b)
+- [Anejo C](#anejo-c)
+
+---
+
+### Capítulo I
+
+- **Artículo 1**: Este reglamento queda incorporado y forma parte de al escritura matriz, mediante el cual se sometió al complejo residencial Condominio Boulevard del Río I (EL CONDOMINIO) al régimen de Propiedad Horizontal
+
+- **Artículo 2**: El condominio se regirá por las disposiciones de las leyes vigentes, por la escritura matriz, escritura de condiciones restrictivas sobre la propiedad otorgada como la escritura número Catorce (14) titulada "SOMETIENDO EL CONDOMINIO BOULEVARD DEL RÍO I RÉGIMEN DE PROPIEDAD HORIZONTAL" otorgada el día 41 de agosto del año mil novecientos noventa y siete (1997) ante el Notario Gilberto Oliver Vázquez.
+
+---
+
+### Capítulo II
+
+### Aplicabilidad
+
+- **Artículo 3**: Las disposiciones de este reglamento son aplicables a todo terreno, edificaciones y dependencias del Condominio y a todos los titulares de los apartamentos y espacios de estacionamiento, presentes y futuros, así como a los arrendatarios, huéspedes, visitantes, invitados, empleados y a cualquier persona que esté presente o use las facilidades del Condominio por cualquier motivo o título, y la presencia en el Condominio de cualquier persona lleva implícito la aceptación y obligación de cumplir el presente Reglamento.
+
+---
+
+### Capítulo III
+
+### Consejo de Titulares
+
+- **Artículo 4:** El Consejo de Titulares es el órgano supremo del Condominio en el cual reside al plena y omnímoda soberanía del mismo. Sus resoluciones y acuerdos, tomados con el quórum y demás formalidades legales, son de ineludible e inexcusable cumplimiento por todos y cada uno de los titulares y demás personas que estén presentes en el Condominio o es relacionen con el mismo.
+
+- **Artículo 5:** El Consejo de Titulares está constituido por todos los titulares de los apartamentos que integran el Condominio. La persona o personas a cuyo nombre aparece registrado el apartamento en el Registro de Titulares, será considerada como dueña del mismo, y por ende, como titular, a todos los efectos legales correspondientes.
+
+- **Artículo 6:** REGISTRO DE TITULARES. Los traspasos de propiedad de los apartamentos se anotarán en un libro denominado Registro de Titulares, únicamente a la presentación de una copia simple de la escritura pública por al cual el apartamento se transfiera, debiendo entregarse dicha copia simple de al escritura para los archivos del Condominio. El Registro de Titulares estará a cargo del Secretario, y en el mismo lugar se hará constar el nombre completo de los titulares, el número de su apartamento y el porcentaje que el corresponde de acuerdo con la escritura matriz. El Secretario llevará al Registro de Titulares a cada reunión del Consejo de Titulares y podrá ser inspeccionado por cualquier titular. El Registro de Titulares constituirá prueba "prima facie" de quienes son los titulares con derecho a votar en las reuniones del Consejo de Titulares.
+
+- **Artículo 7:** DEBERES Y FACULTADES DEL CONSEJO DE TITULARES. Corresponde al Consejo de Titulares:
+  - a) Elegir, por el voto afirmativo de la mayoría, las personas que habrán de ocupar siete (7) cargos de Directores, y entre ellos, los que habrán de ocupar los cargos de Presidente, Vicepresidente, Tesorero, Secretario y tres vocales. Los Directores se designan por el término de un año pero continuarán en el desempeño de sus funciones hasta que sus sucesores sean designados.
+  - b) Acordar y aprobar los presupuestos anuales de ingresos y egresos y las cargas y gastos comunes.
+  - c) Modificar este Reglamento por acuerdo de las dos terceras partes de los titulares.
+  - d) Conocer y decidir todos los asuntos de interés general para el Condominio y acordar las medidas necesarias y convenientes para el mejor servicio común.
+  - e) Conocer de las quejas y reclamaciones de los titulares contra los Directores o el Administrador y remover los Directores y el Administrador.
+  - f) Aprobar al ejecución de obras ordinarias o extraordinarias de mejoras, reparación y conservación y estética y obtener fondos para su realización.
+  - g) El Consejo de Titulares deberá aprobar y mantener un plan de desastre y emergencia, que deberá actualizarse por lo menos cada tres (3) años. Dicha revisión deberá realizarse en consulta con las entidades gubernamentales, municipales y federales que sean pertinentes para la protección de la vida y la propiedad. Además, deberán tomarse las medidas que sean necesarias para que el referido plan se les comunique a todos los titulares de la forma más eficaz posible y con el tiempo suficiente para ser estudiado y comprendido. Dicho plan deberá incluir las medidas que es tomarán antes, durante y después de un desastre. Durante el mes de enero de cada año, el Presidente de al Junta de Directores notificará al Cuartel de la Policía de Puerto Rico correspondiente, a la Defensa Civil Municipal y al Departamento de Bomberos de Puerto Rico, el nombre y teléfono de los miembros de al Junta de Directores y del agente Administrador, de forma tal que se mantenga un registro de las personas a contactarse en un momento de emergencia. Asimismo, se deberá aprobar un plan de racionamiento de agua y de energía eléctrica, para ser implantada durante los períodos de desastre, o cuanto se decrete un racionamiento por las agencias concernidas, con el fin de garantizar, equitativamente, un mínimo de uso de dichos recursos a todos los condóminos.
+
+- **Artículo 8:** REUNIONES DEL CONSEJO DE TITULARES. El Consejo de Titulares se reunirá, por lo menos, una vez al año, en sesión ordinaria, para aprobar los presupuestos, gastos y cuentas, elegir los directores y cargos ejecutivos y demás asuntos que es fijen en la convocatoria. Esta reunión ordinaria se celebrará en el mes de agosto de cada año a las siete de al noche o en la fecha que determine al Junta de Directores. También se reunirá en sesiones extraordinarias cuando lo estime conveniente el Presidente o soliciten de éste, por lo menos, al quinta parte de los titulares por escrito. Se establece que el cierre del año fiscal será 30 de junio de cada año.
+
+- **Artículo 9:** CONVOCATORIAS. Las convocatorias para las sesiones del Consejo de Titulares serán firmadas por el Presidente y el Secretario e indicarán los asuntos a tratar, así como el día, la hora y el lugar en que es celebrará la sesión. Las citaciones se harán por escrito, entregándose en el apartamento de cada titular o por medio de correo certificado dirigido a al dirección que a esos fines haya designado el titular que no resida en su apartamento. El gasto que se incurra para notificar al titular por correo certificado se le añadirá al titular en su próxima factura de mantenimiento. Las citaciones se harán por lo menos con diez (10) días y no más de treinta (30) días de anticipación a la fecha de la reunión. Una copia de la citación se fijará en el tablón de edictos del Condominio. El Consejo de Titulares podrá reunirse válidamente, aún sin convocatoria, siempre que concurran al totalidad de los titulares. No será necesaria la celebración de una reunión del Consejo de Titulares para determinado fin, si todos los titulares, con derecho al voto, renunciasen a que se celebre dicha reunión y consintiesen por escrito en que es tome el acuerdo pertinente. El Titular que no pueda asistir a la reunión del Consejo de Titulares, podrá nombrar un representante legal voluntario (Proxy), bastando para acreditar esta última un escrito firmado por el Titular que contendrá la fecha de la firma e indicará las fechas de la asamblea para al que se autorizó la representación, excepto que se trate de un poder general otorgado ante notario. A excepción del poder general otorgado ante notario público, al autenticidad de la firma del titular será verificada y comparada por l secretario de al Junta con la firma que aparezca en el Registro de Titulares, o mediante el mecanismo que el brinde al Secretario de al Junta aquel grado de confiabilidad y certeza de que la firma del titular es auténtica. Ninguna de las personas autorizadas a representar a un titular en asamblea podrá ejercer el derecho al voto en representación de más de nu titular. La representación sólo podrá ejercerse por personas mayores de edad y con capacidad legal, que a su vez sean titulares, familiares hasta el segundo grado de consanguinidad el cónyuge o arrendatarios del condómino o que sea mandatario del titular en virtud de poder general otorgado ante notario o el representante legal del titular. Una misma persona no podrá representar a más de un titular.
+
+- **Artículo 10:** VOTOS. Cada Titular tendrá derecho a votar por el correspondiente apartamento de que sea propietario. Las decisiones del Consejo de Titulares se tomarán por mayoría, la que a los fines de este Reglamento, se define como al mitad más uno de los titulares que asistan a asamblea. Cuando un apartamento pertenezca en comunidad a dos (2) o más personas o su dominio este dividido entre el nudo propietario y el usufructuario, todos los interesados designarán un solo representante ante Consejo, que hablará y votará en nombre de todos. Aquellos titulares que adeuden tres o más plazos de las mensualidades del mantenimiento, derrama o seguro comunal quedarán temporalmente privados del ejercicio del voto en las reuniones del Consejo de Titulares hasta tanto satisfagan la deuda en su totalidad.
+
+- **Artículo 11:** QUÓRUM. El Quórum para constituir las reuniones del Consejo de Titulares lo será una tercera parte (1/3) de los titulares que asistan personalmente o por representación a la misma. No es computará en el quórum, aquellos apartamentos y sus valores porcentuales respectivos, cuyos dueños estén expresamente excluidos de votar en las deliberaciones del Consejo, incluidos aquellos asuntos que requieren unanimidad, por razón de adeudar tres meses o más consecutivos de la cuota de mantenimiento, o derrama. De no obtenerse le quórum dispuesto en la primera reunión convocada, es procederá a una nueva y segunda convocatoria a ser celebrada transcurridas al menos 24 horas después de la primera, y los que allí asistan constituirán quórum. Los acuerdos del Consejo de Titulares, requerirán para us aprobación el voto afirmativo de la mayoría de los titulares presentes que constituyen el quórum reglamentario, a excepción de los acuerdos que por mandato de Ley o del Reglamento requieran una proporción mayor de votos.
+
+- **Artículo 12:** LIBRO DE ACTAS. Las sesiones del Consejo de Titulares se consignarán en un Libro de Actas, que se expresará el lugar, fecha y hora de la reunión, número de titulares presentes con expresión de sus nombres, forma en que fue convocada la reunión, asuntos tratados, resolución adoptadas, los votos a favor y en contra, y las explicaciones de votos o declaraciones de cualquier Titular, si desea que es deje constancia de las mismas. Las actas serán firmadas por el Presidente y el Secretario.
+
+- **Artículo 13:** FORMA DE LAS REUNIONES. Las reuniones serán presididas y dirigidas por el Presidente y si no estuviese presente, por el Vicepresidente, en defecto de éste por el Tesorero y si ninguno estuviese presente, por un Presidente provisional designado por la mayoría de los Titulares presentes. Si el Secretario no compareciese, la mayoría de los Titulares designará un Secretario provisional.
+
+---
+
+### Capítulo IV
+
+### Junta de Directores
+
+- **Artículo 14:**
+  - (a) La Junta de Directores consistirá de un Presidente, vice-presidente, secretario, tesorero y tres (3) vocales. Tanto el Presidente, secretario y tesorero deberán ser electos por el Consejo de Titulares para cada puesto por separado.
+  - (b) Salvo los cargos de Presidente, vice Presidente, Tesorero o Secretario, quienes necesariamente deberán pertenecer a la comunidad de titulares, el apoderado de un titular que acredite mandato expreso de éste, suscrito ante notario, podrá ser electo para ocupar los demás cargos.
+  - (c) Será incapaz e inelegible para ocupar cualquiera de los cargos como miembro de al Junta de Directores todo titular o residente que es el haya podido probar que defraudó al Consejo de Titulares, o contra aquél que esté pendiente una causa ante cualquier foro administrativo o judicial con jurisdicción, ya sean cargos civiles o criminales, por defraudar al Consejo de Titulares. Cualquier titular puede objetar al candidatura según este u otro acápite, siendo el Consejo de Titulares, por mayoría de votos de quienes asistan a la asamblea, quienes adjudicaran dicha impugnación.
+
+- **Artículo 15:** DEBERES Y FACULTADES. Los directores tendrán los siguientes deberes y facultades:
+  - a) Atender todo el relacionado con el buen gobierno, administración, vigilancia y funcionamiento del Condominio en general y en especial todo el relativo a los elementos de uso común y los servicios generales, haciendo a estos efectos las advertencias y apercibimientos oportunos a los titulares.
+  - b) Preparar con al debida atención a la reunión anual de titulares el presupuesto anual de titulares el presupuesto anual de gastos previsibles y de ingresos y someterlo al Consejo de Titulares.
+  - c) Dirigir los asuntos financieros concernientes a las recaudaciones y pagos y disponer que se anoten detalladamente en un libro las partidas de ingresos y gastos que se afecten el condominio y a sus administración, por orden de fecha, y tener disponibles para su examen por todos los titulares en días y horas hábiles el libro expresado, así como los comprobantes acreditativos de las partidas anotadas.
+  - d) Cobrar a los titulares las cantidades que deben pagar por gastos comunes y realizar los demás cobros y pagos que sean necesarios, extendiendo los correspondientes recibos y cheques.
+  - e) Abrir las cuentas bancarias separadas, necesarias para las operaciones y reservas, a nombre del condominio, en las cuales es depositarán todos los ingresos del condominio, realizándose los depósitos a al mayor brevedad posible, girar cheques contra dichas cuentas para realizar los pagos que sean necesarios, cuidando que los cheques no se expidan al portador y que cada uno tenga su comprobante o recibo correspondiente. Los cheques requerirán de al menos dos firmas, ya sea del presidente, secretario y tesorero.
+  - f) Someter para la aprobación del consejo de titulares el estado de cuentas correspondiente a cada año. El estado deberá indicar al cantidad total recibida por conceptos de cuotas para gastos comunes y por otros conceptos, un desglose por partidas de todos los gastos incurridos, al remuneración recibida por el administrador, las cuentas a cobrar por concepto de gastos comunes y otros conceptos, balances para el próximo año y al cantidad disponible por concepto del fondo de reserva. Se notificará una copia del estado de ingresos y egresos a todo titular con quince (15) días de antelación, por lo menos, a la fecha en que es celebre la reunión ordinaria anual del Consejo de Titulares.
+  - g) Atender la conservación del condominio y disponer las reparaciones ordinarias que sean necesarias, adoptando las medidas pertinentes.
+  - h) Cuidar que se lleve al día el libro de titulares y en forma correcta.
+  - i) Cumplir y hacer cumplir disposiciones legales vigentes, de este Reglamento y los acuerdos del Consejo de Titulares.
+  - j) Aumentar o disminuir las cuotas para gastos comunes y cubrir las vacantes de miembros de al Junta de Directores, sujeto a revocación o modificación por el Consejo de Titulares.
+  - k) Todas las demás facultades que el sean asignadas por el Consejo de Titulares.
+  - j) Designar el Administrador, sujeto a ratificación por el Consejo de Titulares, quien podrá o no ser Titular y podrá ser persona natural o jurídica, y el personal que fuere necesario; fijando sus remuneraciones. La Junta de Directores puede delegar en el Administrador cualquiera de las facultades anteriormente relacionadas, todo lo relacionado con el nombramiento y separación del personal y las facultades adicionales que estime pertinentes.
+  - m) Relevar de sus funciones al Agente Administrador por justa causa. Se entenderá por justa causa el desempeño negligente o culposo en el desempeño de sus funciones, al deshonestidad o al violación de las normas de buena conducta, o el incumplimiento de sus deberes establecidos contractualmente. De relevar al Agente Administrador al Junta de Directores deberá convocar al Consejo de Titulares, no más tarde de 30 días del relevo, para informar dicha acción a fin de tomar las medidas que se estimen convenientes.
+  - n) Establecer un reglamento que rija el uso y disfrute de las áreas recreativas del Condominio. (Véase anejos B y C.)
+  - o) Facilitar a los titulares, aseguradoras, tenedores y garantizadores de créditos hipotecarios, toda la información que deseen, relacionadas con el Condominio.
+  - p) Se autoriza expresamente a la Junta de Directores a imponer multas administrativas al Titular o residente que viole las normas de convivencia estatuidas en al Escritura Matriz, la Ley o el Reglamento hasta un máximo de cien dólares ($100.00) por cada violación, según se detallan en el Anejo A de este Reglamento. Las multas administrativas es incorporarán a las cuotas de mantenimiento.
+
+- **Artículo 16:** QUÓRUM. La mayoría de los miembros de al Junta de Directores, constituyen quórum. Si en cualquier reunión de al Junta no hubiese quórum, la mayoría de los presentes podrá aplazar la reunión, sin más notificación, de tiempo en tiempo hasta que se obtenga quórum.
+
+- **Artículo 17:** REUNIONES. Las reuniones ordinarias de al Junta de Directores se celebrarán en las fechas que determine la Junta, una vez al mes. El Presidente podrá convocar a reuniones extraordinarias con dos (2) días de notificación a cada miembro de al misma, personalmente o por correo. El Presidente, con igual notificación, podrá convocar reuniones extraordinarias a petición escrita de cualesquiera dos (2) miembros de al Junta. Se podrá celebrar una reunión de al Junta sin notificación, inmediatamente después de terminada al sesión anual ordinaria del Consejo de Titulares. No será necesario citar para las reuniones ordinarias de al Junta celebradas en fechas fijas por la Junta. Se podrá celebrar reuniones en cualquier momento, sin notificación, si todos los miembros de al Junta están presentes, o si antes o después de la reunión, los ausentes renuncian por escrito a la notificación. Las citaciones no necesitan expresar el propósito ni los asuntos a tratarse en la reunión.
+
+- **Artículo 18:** VOTACIÓN. Cada miembro de la Junta de Directores tendrá un voto y los acuerdos se tomarán por mayoría de los votos de los Directores presentes.
+
+- **Artículo 19:** COMPENSACIÓN. Los miembros de al Junta de Directores no recibirán compensación alguna por sus servicios. La Junta podrá autorizar el reembolso a los miembros de al misma por gastos realmente incurridos a nombre del Condominio.
+
+- **Artículo 20:** VACANTE Y REMOCIÓN. Si el cargo de cualquier miembro de al Junta de Directores quedase vacante por razón de muerte o renuncia, los demás miembros de al Junta, por el voto mayoritario, designarán un miembro sustituto que ocupará el cargo por el término restante del miembro a quien sustituye dando inmediata cuenta al Consejo de Titulares, convocando a una asamblea extraordinaria dentro del término de 30 días siguientes, quienes por voto mayoritario deberán ratificar dicha designación. Cualquier miembro podrá renunciar en cualquier momento. Si un Director cesara como Titular por transferir su título de dueño de su apartamento, se considerará que automáticamente renuncia al cargo. El Consejo de Titulares tendrá derecho en cualquier momento a remover cualquier o todos los Directores con o sin causa. Si un Director fuere removido, el Consejo elegirá otro Director para ocupar al vacante.
+
+---
+
+### Capítulo V
+
+### Cargos Ejecutivos
+
+- **Artículo 21:** DEL PRESIDENTE. Será el principal funcionario ejecutivo del Condominio y tendrá los deberes y facultades siguientes:
+  - a) Presidir las reuniones del Consejo de Titulares y de al Junta de Directores.
+  - b) Firmar todos los contratos y documentos a nombre del Condominio que sean autorizados por el Consejo de Titulares o por al Junta de Directores.
+  - c) Convocar las reuniones ordinarias y extraordinarias del Consejo de Titular y de la Junta de Directores.
+  - d) Cuidar de que los libros, informes, estados y demás documentos y trámites requeridos por las leyes y este Reglamento, se mantenga y cumplan correctamente.
+  - e) Someter un informe anual de las operaciones del Condominio al Consejo de Titulares en la reunión ordinaria anual y de tiempo en tiempo informar a la Junta de Directores de todos los asuntos de interés al Condominio.
+  - f) Firmar conjuntamente con el Secretario las convocatorias y las actas de las reuniones del Consejo de Titulares y al Junta de Directores.
+  - g) Asistir a todas las reuniones del Consejo de Titulares y de la Junta de Directores y del Condominio.
+  - h) Representar en juicio y fuera de él al Consejo de Titulares, la Junta de Directores y el Condominio.
+  - i) Será miembro de todo comité que fuera creado por voluntad del Consejo o Junta de Directores, salvo aquel que pudiera constituirse para investigar su conducta o ejecutoria como miembro de la Junta, o el Comité de Conciliación.
+  - j) Todos los demás deberes incidentales e inherentes a su cargo.
+
+- **Artículo 22:** DEL VICE PRESIDENTE. Tendrá los deberes facultades siguientes:
+  - a) Llevar a cabo las funciones del Presidente cuando esté ausente, incapacitado o renuncie hasta que sea llenada su vacante.
+  - b) Llevar a cabo cualesquiera otras funciones que el sean asignadas por el Consejo de Titulares de tiempo en tiempo.
+  - c) Asistir a todas las reuniones del Consejo de Titulares y la Junta de Directores.
+
+- **Artículo 23:** DEL TESORERO. Tendrá los deberes y facultades siguientes:
+  - a) Tener al supervisión y custodia de los fondos y efectos del Condominio.
+  - b) Cuidar que el Administrador leve cuentas completas, exactas y al día de al contabilidad, libros y comprobantes de los ingresos y desembolsos.
+  - c) Cuidar de que todos los cheques, dinero y valores del Condominio se depositen a nombre a éste en un banco designado por al Junta de Directores y firmar conjuntamente los cheques con el Presidente.
+  - d) Supervisar el desembolso de los fondos del Condominio, conservándolos.
+  - e) Rendir cuentas al Presidente, Junta de Directores y Consejo de Titulares de su actuación como Tesorero y sobre al situación financiera del Condominio.
+  - f) Asistir a todas las reuniones del Consejo de Titulares y de al Junta de Directores.
+
+- **Artículo 24:** DEL SECRETARIO. Tendrá los deberes y facultades siguientes:
+  - a) Redactar las convocatorias a las reuniones del Consejo de Titulares y Junta de Directores y notificar las citaciones.
+  - b) Asistir a todas las reuniones del Consejo de Titulares y Junta de Directores y ayudar al Presidente en la celebración de las mismas.
+  - c) Redactar las actas de dichas reuniones en los libros correspondientes. d) Firmar conjuntamente con el Presidente las actas de cada reunión.
+  - e) Expedir con vistas de los libros de actas todas las certificaciones que fuesen necesarias, con el visto bueno del Presidente.
+  - f) Custodiar y mantener a disposición de los Titulares toda al documentación concerniente a las reuniones del Consejo y de al Junta.
+  - g) Llevar el libro de propietarios en el cual es anotarán los nombres, las firmas y demás datos de los titulares de los apartamentos, así como las sucesivas transferencias o arrendamientos que ocurran en relación a esas unidades. El libro se utilizará para autenticar las firmas de los titulares cuando sea necesario.
+  - h) Todas las demás funciones y atribuciones que lógicamente sean de su competencia por la naturaleza de su cargo y aquellas que le sean asignadas por el Consejo de Titulares y Junta de Directores.
+
+- **Artículo 25:** DE LOS VOCALES. Tendrán los deberes y facultades siguientes:
+  - a) Asistir a todas las reuniones del Consejo de Titulares y Junta de Directores.
+  - b) Auxiliar a los demás miembros de la Junta en el ejercicio de sus funciones y realizar las labores que le encomiende el Consejo de Titulares y la Junta de Directores.
+
+---
+
+### Capítulo VI
+
+### Del Administrador
+
+- **Artículo 26:** El Administrador será nombrado y removido por al Junta de Directores debiendo ser ratificado por el Consejo de Titulares, pudiendo recaer el nombramiento en un individuo o en una corporación, sea o no titular, y que reúna las condiciones determinadas por al Junta de Directores, el Consejo de Titulares y la Ley de Condominios. La Junta fijará su remuneración.
+
+- **Artículo 27:** Tendrá los deberes y facultades siguientes:
+  - a) Atender todo el relacionado con el buen gobierno, administración, vigilancia y funcionamiento del Condominio, en especial, todo el relativo a las cosas o elementos de uso común y los servicios generales.
+  - b) Por delegación de la Junta de Directores, el Administrador podrá (i) Dirigir los asuntos financieros relativos a las recaudaciones y pagos y las operaciones en los libros de contabilidad que sean necesarias con anotación de todas las partidas de ingresos y gastos. Estos libros, así como las cuentas, facturas y comprobantes respectivos los mantendrá a disposición de los titulares en horas y días laborables; (ii) Cobrar a los titulares las cantidades con que deben contribuir a los gastos comunes o de mantenimientos y realizar los demás cobros de todas las cantidades que se adeuden al Condominio y pagar todas las deudas del mismo, extendiendo los correspondientes recibos y cheques; (iii) Confeccionar y someter a la Junta de Titulares el presupuesto anual de ingresos y gastos, teniendo en cuenta al contribución proporcional de los titulares; (iv) Mantener las cuentas bancarias de operaciones y reservas a nombre del Condominio en la cual se depositarán los ingresos a al mayor brevedad. Firmar los estados de cuenta y comprobantes de saldo.
+  - c) Formular, cuando no el hubiesen hecho los interesados, las denuncias y reclamaciones por al violaciones de las formas de convivencia e informaciones de este Reglamento.
+  - d) Velar por la conservación y funcionamiento de las diversas dependencias del Condominio, fundamentalmente las de uso común, así como de su vigencia.
+  - e) Llamar al atención por escrito y/o multar administrativamente en forma adecuada a cualquier Titular, arrendatario u ocupante que infringiese las disposiciones relativas al uso de los elementos comunes y las normas de convivencia establecidas en este Reglamento con copia a al Junta de Directores.
+  - f) Preparar, mantener y radicar todos los récords e informes requerido por las Leyes y este Reglamento.
+  - g) Cumplir y hacer cumplir las Leyes, este Reglamento y los acuerdos del Consejo de Titulares y de al Junta de Directores, incluyendo el Reglamento que establezca la Junta de Directores para el uso y disfrute de la piscina.
+  - h) Atender a la conservación del Condominio y disponer de las reparaciones ordinarias que sean necesarias, adoptando las medidas pertinentes.
+  - i) Cuidar de que se lleve al día el Libro de Titulares y en forma correcta.
+  - j) Todas las demás facultades que el sean asignadas por al Junta de Directores.
+
+---
+
+### Capítulo VII
+
+### De los Titulares
+
+- **Artículo 28:** Será considerado Titular el propietario de un apartamento que acredite fehacientemente tener su propiedad, con todos los derechos y obligaciones inherentes al mencionado dominio. A ese efecto, todo propietario tiene la obligación de comunicar al Administrador, con expresión de su nombre, apellido, generales y dirección. La fecha y demás particulares de al adquisición, los documentos fehacientes que acrediten dicho extremo, del cual se tomará razón en el Registro de Titulares, dejando constancia en el titulo respectivo. Mientras no se cumplan las anteriores formalidades será tenido por titulares a los efectos de citaciones y votación en las sesiones del Consejo de Titulares, quien figure en el Registro de Titulares, y por dirección al que aparezca registrada en al Administración.
+
+- **Artículo 29:** El Titular de cada apartamento será dueño en pleno y absoluto dominio de al superficie y espacio comprendido dentro de su apartamento, según consta en la escritura matriz y en los planos registrados pudiendo ejercer dentro de us ámbito todas las facultades inherentes al dominio, con sujeción a las disposiciones de la escritura matriz y de este Reglamento.
+
+- **Artículo 30:** El Titular en le disfrute y aprovechamiento de su apartamento tendrá que dedicarlo obligatoriamente al destino que es le asignó en la escritura matriz, o sea, a fines estrictamente residenciales. Ningún titular, arrendatario u ocupante de un apartamento podrá dedicarlo a fines comerciales, profesionales o industriales y deberá ajustar en todo momento su conducta al orden, disciplina, moralidad, decoro y normas de convivencia establecidas por la Ley, este Reglamento y las buenas costumbres.
+
+- **Artículo 31:** Todo Titular es responsable directo de las violaciones de las normas de convivencia y de los daños y molestias ocasionados a los demás Titulares y vecinos y a los elementos comunes, por sus familiares, visitas, empleados, arrendatarios y en general por las razones que se hallan en el apartamento por cualquier titulo o motivo.
+
+- **Artículo 32:** Cada Titular tiene al obligación de ejecutar con al premura que el caso requiere, en su apartamento, todas aquellas reparaciones y obras urgentes, cuya omisión pueda producir daños y dificultades a los otros apartamentos o a al estructura, solidez o seguridad general del Condominio, siendo responsable de los daños y perjuicios resultantes del incumplimiento de esta obligación.
+
+- **Artículo 33:** En el caso de que el Titular no realice con al debida premura dichas reparaciones o se encuentre ausente del apartamento, el Administrador y/o cualquier miembro de al Junta de Directores podrá entrar en dicho apartamento y ordenar que se realicen las reparaciones de emergencia con el fin de proteger los intereses de los titulares y evitar que se causen graves daños a los otros apartamentos. El costo de dicha reparación le será notificado y facturado al Titular por el Administrador y el pago del mismo será efectuado por el Titular al Administrador dentro de los diez (10) días siguientes a la notificación. Este gasto se añadirá a la cuota de mantenimiento del apartamento.
+
+- **Artículo 34:** Cada Titular pagará íntegramente los gastos que ocasione las obras de mejoramiento, estética, reparaciones y demás obras ordinarias y extraordinarias interiores que requiere su apartamento.
+
+- **Artículo 35:** El Administrador comunicará por escrito al Titular, y éste está obligado a permitir al entrada en su apartamento de las personas encargadas de proyectar, inspeccionar o realizar cualquier obra de interés general, tanto cuando afectan los elementos comunes como a los apartamentos vecinos. Dichas obras deberán realizarse en el tiempo y forma que produzcan las menores molestias a los Titulares.
+
+- **Artículo 36:** En caso de venta, alquiler cesión del apartamento, le Titular viene obligado a:
+  - a) Ponerlo inmediatamente en conocimiento de al Administración, con expresión del nombre, apellidos, generales y dirección del adquiriente, con el objeto de que se hagan las anotaciones correspondientes en el Registro de Titulares. Del mismo modo de ser arrendado deberá poner en conocimiento a la administración con los mismos datos.
+  - b) Exigir al adquiriente que en la escritura de transferencia del apartamento consienta a al expresión de que conoce y está conforme en cumplir las leyes que regulan al Propiedad Horizontal, la escritura matriz del Condominio y este Reglamento.
+  - c) Tanto el Titular que venda o ceda, como el comprador y cesionario serán responsables solidaria y mancomunadamente del pago de los gastos comunes de mantenimiento, seguros y derramas que se estén adeudando al tiempo de dicha venta cesión.
+
+- **Artículo 37:** En caso de que el Titular de un apartamento esté ausente y es produzca cualquier siniestro o en al eventualidad que es origine en su apartamento, el Administrador y/o cualquier miembro de al Junta de Directores podrá entrar en el mismo a fin de tomar las medidas oportunas.
+
+- **Artículo 38:** Es obligación de los Titulares asistir a las reuniones tanto ordinarias como extraordinarias del Consejo de Titulares y contestar los referéndum que se hagan, teniendo el derecho de exponer y defender sus puntos de vista o ideas cuando se sometan a votación los asuntos.
+
+---
+
+### Capítulo VIII
+
+### Del uso de los apartamentos
+
+- **Artículo 39:** La falta de cumplimiento de un titular de un apartamento con los términos de esta escritura matriz, del reglamento o al ley, dará derecho a los demás titulares y/o al Consejo de Titulares a solicitar cualquier compensación en ley, y si el Consejo se viera obligado a demandar un titular por dicho incumplimiento tendrá derecho al reembolso de gastos de abogados razonables y costas, el que el titular se compromete a pagar.
+
+- **Artículo 40:** El uso y disfrute de cada apartamento estará sujeto a las reglas siguientes:
+  - a) Se dedicará exclusivamente a fines residenciales, prohibiéndose los fines comerciales, industriales o profesionales, o cualquier tipo de negocio.
+  - b) No se producirán ruidos o molestias innecesarias, ni ejecutarán actos que perturben al paz o tranquilidad de los demás Titulares y ocupantes de los apartamentos.
+  - c) No se utilizará el apartamento para actos o fines contrarios a la Ley, el orden público y normas de convivencia establecidas por la Ley y este Reglamento.
+  - d) Las obras de modificación, reparación, limpieza, seguridad y mejoras del apartamento es realizarán sin perturbar el uso y goce legítimo de los Titulares.
+  - e) No se podrá cambiar la forma externa de las fachadas, ni decorar o pintar las paredes, puertas o ventanas exteriores del apartamento con colores, tonalidades o adornos distintos a las del conjunto del Condominio, y en todo caso será necesario el consentimiento unánime del Consejo de Titulares.
+  - f) Ningún titular podrá convertir los balcones en áreas cerradas ni podrán relocalizar las puertas y ventanas exteriores.
+  - g) El titular que desee arrendar su apartamento se ajustará estrictamente a las normas siguientes: (i) Deberá ponerlo en conocimiento de la Junta de Directores por conducto del Administrador con quince (15) días de anticipación, a la fecha en que entre en vigor el arrendamiento, indicando el nombre del arrendatario; y deberá constar en la escritura y/o contrato de arrendamiento que el arrendatario conoce el Reglamento, y las demás bases del Régimen de Propiedad Horizontal, y las acatará y cumplirá en todas sus disposiciones. (ii) El Titular responderá por el cumplimiento de este Reglamento por parte del arrendatario; (iii) El Titular seguirá siendo el responsable absoluto de las aportaciones para los gastos comunes o de mantenimiento; (iv) Se hará constar expresamente en el contrato de arrendamiento que el arrendatario conoce y se obliga a atacar y cumplir las leyes que regulan la Propiedad Horizontal, la escritura Matriz y este Reglamento; (v) El Consejo de Titulares queda autorizado para pedir a través del Tribunal de Primera Instancia al resolución del contrato de arrendamiento, el desahucio y el lanzamiento del arrendatario, cuando éste o cualquiera de los ocupantes del apartamento arrendado, violen las normas de convivencia que se establecen en este Reglamento.
+  - h) Las mudanzas, entregas de muebles y enseres se permitirán de lunes a viernes de 8:00 am a 5:00 pm y sábados de 9:00 am a 5:00 pm. Los domingos y días feriados se podrán llevar a cabo de 11:00 am a 5:00 pm. Será requisito una fianza de $250.00 dólares a favor del Consejo de Titulares para poder llevar a cabo la mudanza. Esta partida será íntegramente devuelta si es comprueba por la administración que no hubo daño a la propiedad comunal. Cualquier daño que sobrepase le monto pagado de al fianza deberá ser pagado inmediatamente por el Titular. Toda mudanza, entrega de muebles y/o enseres se notificará con suficiente anticipación a la oficina de administración de forma tal que se puedan tomar las medidas preparatorias y/o cautelares que sean necesarias.
+  - i) Todo trabajo de construcción y/o remodelación dentro de los apartamentos es podrá levar a cabo sólo de lunes a viernes de 8:00 am a 5:00 pm y sábados de 9:00 am a 5:00 pm. Será requisito prestar una fianza de $250.00 dólares a favor del Consejo de Titulares para poder levar a cabo los trabajos. Esta fianza será devuelta si se comprueba por la administración que no hubo daños a la propiedad. Cualquier daño que sobrepase le monto pagado de al fianza deberá ser pagado inmediatamente por el Titular. La jardinería en los apartamentos que tengan patio se podrá llevar a cabo de lunes a viernes de 8:00 am a 5:00 pm; sábados de 9:00 am a 5:00 pm; y domingos de 11:00 am a 5:00 pm.
+  - j) Se prohíbe dejar o depositar escombros, tales como basura, desechos de construcción, mattress, enseres, muebles, etc., en los contenedores de basura.
+
+---
+
+### Capítulo IX
+
+### De los elementos comunes
+
+- **Artículo 41:** Tendrán al condición de bienes o elementos comunes, generales y limitados, a todos los efectos legales, los establecidos en la Ley 104 del 52 de junio de 1958, según enmendada conocida como Ley de Condominios y en la escritura matriz del Condominio.
+
+- **Artículo 42:** Los Titulares, inquilinos, ocupantes y visitas podrán usar osl elementos comunes de acuerdo con su destino y naturaleza, pero con toda moderación y prudencia, conservándolos en la mejor forma posible y de manera que no impida, restrinja o estorbe el legítimo derecho de los demás Titulares, inquilinos, ocupantes y visitas.
+
+- **Artículo 43:** Queda terminantemente prohibido:
+  - a) Colocar insignias, letreros, anuncios, placas, carteles, banderas, rejas, paneles o lámparas de madera, cristal o metal, antenas de radio o televisión, en las paredes exteriores del Condominio, pasillos, escaleras, azoteas, vestíbulos y en las ventanas, balcones o barandas de los apartamentos, sin al previa autorización del Consejo de Titulares.
+  - b) Instalar unidades de aire acondicionado en las ventanas de los apartamentos. Las unidades de aire acondicionado sólo podrán ser instaladas en los espacios provistos para éstos en las paredes y/o en los espacios debajo de las ventanas, a tenor con el modelo y diseño provisto en el diseño del Condominio.
+  - c) Tender, secar o sacudir ropa en las ventanas, balcones o barandas de las fachadas. Se prohíbe el uso de estufas y secadoras de gas, excepto en casos de emergencia por desastre natural.
+  - d) Realizar labor doméstica fuera del apartamento.
+  - e) Usar hornillas, barbacoas o fogones que sean de gas o carbón en el interior de los apartamentos, excepto en los balcones y en casos de emergencia por desastre natural. Se prohíbe expresamente el uso de generadores eléctricos en los apartamentos.
+  - f) Colocar macetas, latas, canastas o tiestos con plantas o flores en sitios del apartamento que al regarse o caerse puedan causar molestias o daños a los Titulares o demás personas de los pisos inferiores y producir desperfectos en la pintura o las paredes del Condominio.
+  - g) Entorpecer los elementos comunes como pasillos, escaleras vestíbulos, áreas de estacionamiento y demás vías de circulación y acceso con paquetes, bultos, cajas, latas, basura y demás objetos análogos que dificulten el libre tránsito o afecten la estética del Condominio. En general, no es podrá almacenar o depositar nada en las áreas comunes y de estacionamiento.
+  - h) Llevar a cabo cualquier actividad o mantener cualquier cosa que resulte en un alza en la póliza de seguros del Condominio, o en la cancelación de dicha póliza.
+  - i) Se prohíbe al tenencia o cría de animales, excepto que es podrán tener animales domésticos que no ocasionen molestias a los demás condóminos conforme a las reglas que adopte al Junta de Directores. Los titulares serán responsables de recoger y limpiar inmediatamente el excremento de las necesidades biológicas que hagan dichos animales en las áreas comunes del condominio, así como limpiar cualquier área afectada. La presencia de estos animales no podrá de ninguna manera interferir con el disfrute y el buen funcionamiento del condominio. Limitándose a no más de dos (2) mascotas por apartamento. Se prohíben todos los animales que causen problemas o peligros a la comunidad, los perros de ataque, además los de al raza Pitbull y/o razas relacionadas o mezclas de este. Al sacar y entrar estos animales en los predios del condominio y mientras estén en tránsito por las áreas comunes serán llevados en todo momento por una cadena, correa o "leash". Todas las mascotas que residan en el condominio deberán estar debidamente registradas en la oficina de administración, vacunadas contra al Rabia y la Leptospirosis, al igual que deben estar en un programa de prevención contra parásitos externos y parásitos gastrointestinales de potencial zoonótico. Los dueños de mascotas deberán someter a la administración evidencia oficial de la vigencia de estos requisitos. La violación o incumplimiento con esta norma podría implicar al aplicación de multas administrativas al titular que infrinja al misma.
+  - j) Estacionarse en áreas que no estén designadas específicamente como áreas de estacionamientos, y nunca en el área de estacionamiento de otro titular. Los estacionamientos para personas con impedimentos son para el uso exclusivo de las personas que cuentan con estas limitaciones y estén autorizados por el Departamento de Transportación y Obras Públicas.
+  - k) Los apartamentos no podrán ser objeto de modificaciones que afecten en forma alguna la seguridad, solidez, estética y aspecto físico actual del edificio, sus balcones, paredes exteriores, elementos comunes y/o partes exteriores de la unidad familiar adyacentes a esos elementos comunes y el goce y disfruto de las unidades familiares. Para toda obra que afecte los elementos comunes del inmueble se requerirá el consentimiento unánime de los titulares conforme a al ley, según el procedimiento establecido en al Escritura Matriz.
+  - l) Ningún titular podrá construir o instalar sobre la azotea, balcones o fachadas cualquier estructura o cubierta permanente o temporera, tenderos de ropa, astas de bandera u objetos de cualquier naturaleza, independientemente de su propósito o diseño, sin el previo consentimiento unánime del Consejo de Titulares. Ningún titular tendrá acceso o podrá utilizar al azotea de los edificios excepto en emergencias o con el permiso expreso de al Junta de Directores.
+  - m) Queda expresamente prohibido el uso de los predios comunales del Condominio de vehículos de motor conocidos como "four tracks", "scooters motorizados", "mini bikes", carros de golf y/o de cualquier otra naturaleza similar. Se excluye de esta prohibición a los agentes de seguridad del Condominio.
+  - n) En las calles y estacionamientos del Condominio sólo podrán transitar y estacionarse vehículos de motor debidamente autorizados por el Departamento de Transportación y Obras Públicas. Se prohíbe estacionar botes, yates, lanchas, jet ski en los estacionamientos. Se prohíbe mantener vehículos inservibles dentro de los predios del Condominio. Todo titular deberá estacionarse correctamente dentro de los límites de su estacionamiento asignado, conducta cuya violación podría implicar al imposición de multas administrativas.
+
+- **Artículo 44:** No es usarán aparatos de sonido o instrumentos de música en un tono que perturbe o moleste a los Titulares y demás personas que se halen en el Condominio. El Titular y ocupantes del apartamento no podrán producir ruidos, actos o actividad de cualquier clase que perturbe o altere al paz y tranquilidad de los demás Titulares. Se prohíbe expresamente el uso de material pirotécnico en los predios del Condominio, excepto en despedida de año. Además de la multa administrativa que se dispone el titular que viole este apartado será responsable del gasto de limpieza de las áreas comunes, gasto que se le añadirá a sus cuotas de mantenimiento.
+
+---
+
+### Capítulo X
+
+### De las aportaciones a los gastos comunes de administración y mantenimiento
+
+- **Artículo 45:** Los Titulares están obligados a contribuir a los gastos para la administración, conservación, reparación y uso de los elementos comunes limitados, los gastos de similar naturaleza impuestos por el Consejo, así como a cuantos más fuesen legítimamente acordados.
+
+- **Artículo 46:** Ningún titular podrá librarse de contribuir a tales gastos por renuncia al uso y disfrute de los elementos comunes, ni por abandono ni por su arrendamiento.
+
+- **Artículo 47:** La cantidad proporcional con que debe contribuir cada Titular a los gastos comunes, se determinará, fijará e impondrá al principio de cada año calendario o fiscal, y vencerá y será pagadera en plazos mensuales. Los titulares que no satisfagan las cuotas de mantenimiento transcurridos los primeros quince (15) días del mes tendrán una penalidad del diez por ciento (10%) del total adeudado en el mes. Además las cuotas que los titulares no cubran dentro del plazo fijado para su pago, devengarán intereses del tipo máximo legal en el mes. La falta de pago de tres (3) o más plazos consecutivos, conllevará una penalidad adicional equivalente al uno por ciento (1%) mensual del total adeudado, o us equivalente, doce por ciento (12%) anual. La Junta de Directores ordenará que es suspendan los servicios recibidos a través o por medio de los elementos comunes generales, incluidos los servicios de agua, electricidad, teléfono y/o cualquier otro servicio similar a éstos, a aquellos condóminos morosos que, al no pagar sus cuotas de mantenimiento o su parte proporcional del seguro comunal, es sirven graciosamente de los elementos a cuyo mantenimiento no contribuyen como les corresponde, adeudan dos (2) o más plazos consecutivos de sus cuotas. Sin embargo, ante el incumplimiento del primer plazo al Junta de Directores o el Director enviara una notificación para informar de la intención de suspender los servicios al vencer el segundo plazo consecutivo de incumplimiento, esto por correo certificado, cuyo costo de envío (por correo certificado) se le añadirá a las cuotas de mantenimiento del titular moroso. Cuando se trate de una derrama, cuyos plazos no se hayan incorporado a la cuota de mantenimiento mensual, al suspensión de los servicios podrá efectuarse una vez transcurridos los dos (2) meses desde el plazo final establecido para su pago total de el adeudado. Previo a interrupción de los servicios antes mencionados, al Junta de Directores se cerciorará que con elo no es afecten al salud o la vida de la parte afectada. Nunca es aceptarán pagos parciales.
+
+- **Artículo 48:** El Titular moroso será requerido de pago mediante correo certificado, con acuse de recibo y de no verificar el pago dentro de quince (15) días de puesto en el correo el requerimiento, se le podrá exigir el pago por la vía judicial. En caso de reclamación por la vía judicial, el Tribunal podrá decretar el embargo preventivo de los bienes del deudor sin otro requisito que la presentación de una certificación jurada por el Presidente y Secretario del Consejo de Titulares en que conste el acuerdo que aprobó el gasto exigible y su cuantía, así como la gestión de requerimiento de pago conforme a derecho. Cuando se acuda a la vía judicial, el Titular pagará, además, y así es fijará en al sentencia que se dicte, una cantidad adicional equivalente al 30% de las cantidades adeudadas para el pago de gastos y honorarios de abogado en que incurra al Junta de Directores.
+
+- **Artículo 49:** Si el apartamento estuviese arrendado y el titular adeudase tres (3) o más plazos de al mensualidad del mantenimiento, es podrá solicitar del Tribunal que ordene al arrendatario que consigne judicialmente el importe de al renta a favor del Consejo de Titulares para aplicar dicha suma al pago de la deuda.
+
+- **Artículo 50:** Los Titulares que adeudan tres (3) o más plazos mensuales de su cuota de mantenimiento, derrama o seguro comunal, quedarán temporalmente privados de ejercer su derecho al voto en las reuniones del Consejo de Titulares inclusive los que requieren unanimidad hasta tanto satisfagan la deuda en su totalidad.
+
+---
+
+### Capítulo XI
+
+### Modificaciones al Reglamento
+
+- **Artículo 51:** Cuando en una reunión convocada para enmendar el Reglamento, no pueda obtenerse al aprobación de las dos terceras (2/3) partes de todos los Titulares, aquellos que, debidamente citados, no hubieran asistido, serán notificados de modo fehaciente y detallado del acuerdo adoptado por mayoría de los presentes, concediéndoles un plazo de treinta (30) días a contar desde dicha notificación para manifestar en al misma forma su conformidad o discrepancia debidamente fundamentada por escrito con el acuerdo tomado. Disponiéndose que, el voto de aquello titulares que no manifestaren su discrepancia dentro del plazo concedido, es contará a favor de al enmienda propuesta y aprobada por los demás titulares. Dicha enmienda será válida y ejecutable tan pronto se obtenga al aprobación de las dos terceras (2/3) partes de los Titulares.
+
+- **Artículo 52:** En la convocatoria que se libre para al sesión en que se habrá de modificar el Reglamento, se hará constar expresamente ese propósito y se acompañara al nueva redacción que se desea dar a los artículo del Reglamento.
+
+- **Artículo 53:** Las modificaciones al Reglamento es harán constar en escritura pública que se inscribirá en el Registro de al Propiedad.
+
+- **Artículo 54:** Cuando todos los Titulares presentes en una reunión, convocada para tomar un acuerdo que es requiera unanimidad, adoptasen dicho acuerdo, aquellos que, debidamente citados, no hubieran asistido, sean notificados de modo fehaciente y detallado, del acuerdo adoptado y sí, en un plazo de treinta (30) días a contar de dicha notificación no manifestaren en al misma forma su discrepancia debidamente fundamentada por escrito, quedarán vinculados en el acuerdo que no será ejecutable hasta que transcurra tal plazo salvo que antes manifestaren su conformidad.
+
+---
+
+### Capítulo XII
+
+### De los seguros
+
+- **Artículo 55:** Los edificios, en su conjunto deberán estar asegurados contra riesgos de pérdida, entre éstos será obligatorio incluir el incendio y terremoto por el valor total del edificio. La póliza de seguro deberá contener una cubierta a favor o en protección de los miembros de la Junta de Directores por su desempeño mientras ocupen su cargo.
+  - a) El seguro comunal será seleccionado por el Consejo de Titulares mediante acuerdo de los que representen mayoría, sin perjuicio del derecho que el asiste a cada titular de asegurar por su cuenta y beneficio propio su apartamento. El titular que tenga seguro particular o que haya saldado su hipoteca no queda exonerado de contribuir proporcionalmente al seguro comunal adoptado por el Consejo.
+  - b) Todo titular podrá solicitar de al Junta de Directores al inspección de los documentos relacionados con los seguros comunales. La Junta de Directores podrá sustituir el agente o corredor de seguros siempre y cuando, las cubiertas y condiciones del nuevo seguro sean las mismas o de mayor alcance y beneficio, y al mismo, o menor costo de al que estuviera vigente al momento del cambio, dando inmediata cuenta al Consejo de Titulares.
+
+---
+
+### Capítulo XIII
+
+### Del Fondo de Reserva
+
+- **Artículo 56:** Se constituirá un Fondo de Reserva para al atención de gastos extraordinarios, obras urgentes y para obras de mejora.
+  - a) El presupuesto anual incluirá una partida de Fondo de Reserva que no será menor del cinco por ciento (5%) del presupuesto operacional de Condominio para ese año.
+  - b) Dicho fondo se irá nutriendo hasta alcanzar una suma igual al dos por ciento (2%) del valor de reconstrucción, cuando el Consejo de Titulares decidirá si se continúa o no aportando al mismo. El dinero es conservará en una cuenta especial, separada de la de operaciones, y sólo podrá disponerse de todo o parte del mismo para la realización de obras extraordinarias o urgentes y para las obras de mejora, según se dispone en la Ley. Tan pronto el balance del fondo baje del límite ante indicado, será obligación hacer las aportaciones necesarias para restituir dicho límite.
+
+- **Artículo 57:** El Fondo, así tenido, será depositado en una cuenta especial, según se dispone en el Artículo 57 y podrá constituirse en certificados de depósito de corto plazo, garantizados para obtener el mayor beneficio en intereses que en el mercado pueda realizarse.
+
+- **Artículo 58:** De así entenderlo el Consejo de Titulares, y de resultar que el Fondo de Reserva ha alcanzado una suma dispuesta en el Artículo 57 de este Reglamento, se podrá descontinuar las aportaciones del mismo haciendo los ajustes correspondientes en los pagos de mantenimiento mensuales de los Titulares. Tan pronto el balance del Fondo de Reserva baje del límite dispuesto, el Consejo deberá reinstalar las aportaciones tal y como originalmente habían sido acordadas y dispuestas en este Reglamento.
+
+---
+
+### Capítulo XV
+
+### De las impugnaciones
+
+- **Artículo 59:** Cualquier titular podrá impugnar en el Departamento de Asuntos del Consumidor (DACO) los acuerdos del Consejo de Titulares y las determinaciones, omisiones o actuaciones de al Junta de Directores. En la asamblea anual el Consejo de Titulares es elegirá un Comité de Conciliación compuesto por tres (3) titulares, uno de los cuales se escogerá de entre al Junta de Directores, excluido el Presidente. Todo titular que presente una querella ante el foro pertinente impugnando actuaciones u omisiones de al Junta de Directores o del Agente Administrador deberá demostrar que agotó el procedimiento estatuido en la Ley de Condominios para ventilar querellas ante al Junta de Directores y/o el Comité de Conciliación.
+
+---
+
+### Capítulo XVI
+
+### Anejos
+
+- **Artículo 60:** Se hacen formar parte integral de este Reglamento los siguientes anejos:
+  - A) Anejo A: Listado de multas impuestas por violaciones al Reglamento.
+  - B) Anejo B: Reglamento para uso de la piscina.
+  - C) Anejo C: Reglamento para uso del gazebo.
+
+---
+
+### Capítulo XVIII
+
+### Cláusula Derogatoria
+
+- **Artículo 61:** El presente Reglamento, habiéndose aprobado conforme a las disposiciones de la Ley de Condominios, tiene el efecto de derogar cualquier otro Reglamento previamente adoptado por el Consejo de Titulares del Condominio Boulevard del Río I.
+
+---
+
+## Anejo A
+
+### Listado de multas impuestas por violaciones al Reglamento
+
+El Capítulo I, Artículo 15 inciso (p) del Reglamento del Condominio Boulevard del Río I autoriza expresamente a la Junta de Directores a imponer multas administrativas al Titular o residente que viole las normas de convivencia estatuidas en al Escritura Matriz, la Ley o el Reglamento hasta un máximo de $100.00 dólares por cada violación o el máximo permitido por ley.
+
+| Descripción de la violación y referencia | Multa |
+|---|---:|
+| 1) Estacionamiento indebido o invadir estacionamiento privado. (Multas se impondrán por evento) | $100 |
+| 2) Conducir o estacionar vehículos de motor sin estar debidamente autorizado por el Departamento de Transportación y Obras Públicas. | $100 |
+| 3) Manejar vehículos de motor que están prohibidos a transitar por el Reglamento. | $100 |
+| 4) Comer, beber o utilizar vasos de cristal, plástico, latas o cartón en la piscina. | $50 |
+| 5) Usar la piscina fuera de horario. (Ver Reglamento de la piscina). | $50 |
+| 6) Colocación indebida de anuncios, carteles, insignias, placas, banderas u otros objetos de propaganda o aviso en las paredes exteriores del edificio. | $100 |
+| 7) Tender, secar ropa o toallas en los balcones, ventanas o barandas. | $50 |
+| 8) Producir ruidos (incluyendo ruidos constantes de mascotas), molestias, daños o ejecutar actos que perturben la tranquilidad de los demás Titulares o vecinos. (Excepto trabajos autorizados) | $50 |
+| 9) Usar amplificadores de sonido o instrumentos de música que perturben al tranquilidad de los demás titulares o vecinos. | $50 |
+| 10) Ejecutar obras de modificación, reparación, mudanza, remodelación, limpieza, seguridad y mejoras a su vivienda, sin autorización, perturbando el uso y goce legítimo de los demás. | $100 |
+| 11) Causar daño a cualquiera de los elementos de la propiedad común. | $100 |
+| 12) Alterar o modificar en alguna forma o manera al fachada externa del edificio. | $100 |
+| 13) Pintar persianas, recuadros, puertas, ventanas, o pared que da a los pasillos o al exterior del edificio sin el conjunto acuerdo de la mayoría del Consejo de titulares. | $100 |
+| 14) Mantener vehículos inservibles en el estacionamiento por más de 60 días. (La multa será mensual). | $100 |
+| 15) Realizar trabajos de mecánica en el estacionamiento y/o lavar autos. | $100 |
+| 16) Echar basura fuera del depósito de desecho designado para cada bloque de edificios. (Por evento). | $100 |
+| 17) Permitir que mascota defeque en áreas comunes, sin recoger. (Por evento). | $100 |
+| 18) No entregar copia del contrato de arrendamiento a la administración. | $100 |
+| 19) Uso de material de pirotecnia en los predios del Condominio. (Excepto despedida de año). | $100 |
+| 20) Hacer mudanzas o trabajos de remodelación y/o construcción fuera de los horarios establecidos. | $100 |
+| 21) Instalar aires acondicionados no aprobados. | $100 |
+| 22) Mantener toldos rotos, sucios o en malas condiciones, previa notificación al titular que debe cambiarlo. La multa será mensual. | $100 |
+| 23) Violaciones al Reglamento de la piscina. | $50 |
+| 24) Depositar escombros en los contenedores de basura, según dispuesto en el Artículo 40 (i). | — |
+| 26) Colocar antenas en el techo del edificio. | $100 |
+| 27) Subir sin autorización a la azotea del edificio. | $100 |
+| 28) Colocar basura en pasillo y/o áreas comunes. | $50 |
+| 29) Cualquier otra violación al Reglamento, Escritura Matriz, a la Ley de Condominios, a los documentos constitutivos del régimen horizontal, hasta un máximo de $100 dólares o el máximo permitido por ley. | — |
+
+---
+
+## Anejo B
+
+### Reglamento para el uso de la piscina
+
+**Artículo 1:** Reglas Generales.
+
+1. La piscina es para el uso exclusivo de los Titulares, residentes y sus invitados.
+2. Use la piscina a su propio riesgo. No hay servicio de salvavidas. No somos responsables por accidentes o lesiones.
+3. Se prohíbe la entrada de mascotas al área de la piscina.
+4. Todo niño menor de 12 años tiene que estar acompañado de sus padres o guardián mayor de edad.
+5. Es requerido ducharse antes de entrar a la piscina.
+6. Se prohíbe el consumo de toda bebida alcohólica o no alcohólica ni se permite consumir alimentos, ni fumar en el área. Quedan prohibidos los envases de cristal, plásticos o de cartón. Se prohíbe el uso de hornillas o asadores de alimentos en el área.
+7. Se requiere el uso de traje de baño dentro de la piscina. No se permite bañarse con camisetas. Prohibido el acceso a la piscina de personas vestidas, calzadas con prendas de calle, excepto casos de emergencia.
+8. No se permiten infantes o niños con pañales dentro de la piscina.
+9. Prohibido correr, juegos de mano, chapaletas, moriboggies, tablas de surfing y pistolas de agua en el área de la piscina.
+10. Toda persona que haga uso de la piscina deberá hacerlo con moderación sin afectar el disfrute de los demás titulares. No se permiten bicicletas en el área de la piscina.
+11. De utilizarse equipos o componentes de música deberá mantenerse en forma moderada para no perturbar al tranquilidad de los demás usuarios de la piscina.
+12. El horario oficial es de 6:00 am a 8:00 pm de domingo a jueves, viernes y sábado de 6:00 am a 10:00 pm.
+13. Prohibido lanzarse de cabeza (clavado) en la piscina.
+14. Prohibido hacer necesidades fisiológicas dentro de la piscina.
+
+**Artículo 2:** Toda persona que viole este Reglamento o no mantenga una conducta adecuada y con moderación y decoro será expulsado del área de la piscina, además de poder tomarse otras medidas disciplinarias según el permite el Reglamento y la Ley de Condominios.
+
+---
+
+## Anejo C
+
+### Reglamento para el uso del Gazebo
+
+**Artículo 1:** Reglas Generales.
+
+1. El Gazebo del Condominio Boulevard del Río I será destinado para el uso de actividades comunales y en forma limitada para actividades privadas de los Titulares.
+2. Las actividades comunales son aquellas coordinadas por al Junta de Directores o por el Comité de Actividades nombrado por dicha Junta las cuales se auspician para el disfrute común de todos los Titulares.
+3. Las actividades privadas de los Titulares serán aquellas que estén coordinadas por un Titular mediante previa autorización de al Junta de Directores. Las actividades privadas no podrán privar a los demás titulares y/o residentes del uso de la piscina.
+4. El Titular anfitrión deberá estar presente en la actividad y es hará responsable de al misma y/o de cualquier eventualidad que pueda surgir.
+5. El horario oficial para la celebración de las actividades será el siguiente: Domingo a jueves 8:00 am a 8:00 pm. Viernes y sábados 8:00 am a 10:00 pm.
+6. Sólo se permitirán excepciones a este horario para la celebración de actividades tipo comunal coordinado por al Junta de Directores.
+7. El uso y consumo de bebidas alcohólicas deberá ser moderado y bajo la total responsabilidad del titular anfitrión.
+8. El titular anfitrión será responsable de recoger la basura y llevarla a los contenedores. Además deberá dejar el área limpia.
+
+**Artículo 2:** Procedimiento para las reservaciones:
+
+1. Toda solicitud para el uso privado del Gazebo se hará por escrito llenando la Hoja de solicitud para reservación del Gazebo la cual indicará: a) Nombre del titular anfitrión. b) Número del apartamento. c) Fecha de la actividad. d) Hora de inicio y terminación de la actividad. e) Naturaleza de la misma.
+2. El Administrador mantendrá una Agenda para registrar todas las solicitudes de reservación. Anotará fecha y hora que se somete cada solicitud. De surgir más de una solicitud es el otorgará el permiso a la primera solicitud recibida.
+3. Los titulares deberán estar al día en sus cuotas de mantenimiento para poder solicitar el uso del Gazebo.
+4. Se cobrará una cuota especial por el uso del Gazebo al cual es pagará al momento de someter la solicitud de reservación y concederse la solicitud. La cuota especial será depositada en la cuenta operacional del Condominio. El cheque será girado a favor del Consejo de Titulares del Condominio Boulevard del Río I. El monto de la cuantía el fijará anualmente al Junta de Directores.
+5. Se requerirá también un depósito, que establecerá al Junta de Directores, mediante cheque girado a favor del Consejo de Titulares del Condominio Boulevard del Río I el cual será retenido por el Administrador y el sería devuelto en su totalidad al titular anfitrión si después de finalizada la actividad las facilidades del Gazebo son recibidas en las mismas condiciones en que fueron entregadas. De ser necesario cualquier reparación o reemplazo a la propiedad del Gazebo que sea afectada como consecuencia de la actividad celebrada se utilizará el depósito para reponer o reparar la propiedad afectada. El titular anfitrión será responsable de cubrir cualquier costo de reparación que exceda la cantidad de dinero depositada. El monto del depósito el fijará anualmente al Junta de Directores.
