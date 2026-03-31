@@ -27,7 +27,7 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 - [Anejo B](#anejo-b)
 - [Anejo C](#anejo-c)
 
----
+
 
 ### Capítulo I
 
@@ -35,13 +35,13 @@ situado en la Ave. Los Filtros en el Municipio de Guaynabo, Puerto Rico.
 
 - **Artículo 2**: El condominio se regirá por las disposiciones de las leyes vigentes, por la escritura matriz, escritura de condiciones restrictivas sobre la propiedad otorgada como la escritura número Catorce (14) titulada "SOMETIENDO EL CONDOMINIO BOULEVARD DEL RÍO I RÉGIMEN DE PROPIEDAD HORIZONTAL" otorgada el día 41 de agosto del año mil novecientos noventa y siete (1997) ante el Notario Gilberto Oliver Vázquez.
 
----
+
 
 ### Capítulo II: Aplicabilidad
 
 - **Artículo 3**: Las disposiciones de este reglamento son aplicables a todo terreno, edificaciones y dependencias del Condominio y a todos los titulares de los apartamentos y espacios de estacionamiento, presentes y futuros, así como a los arrendatarios, huéspedes, visitantes, invitados, empleados y a cualquier persona que esté presente o use las facilidades del Condominio por cualquier motivo o título, y la presencia en el Condominio de cualquier persona lleva implícito la aceptación y obligación de cumplir el presente Reglamento.
 
----
+
 
 ### Capítulo III: Consejo de Titulares
 
